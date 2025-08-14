@@ -65,3 +65,26 @@ The speaker also shared insights about **food marketing** and how even homemade 
 
 ### Conclusion  
 This session helped us understand the connection between diet, health, and academic performance, motivating us to adopt a balanced lifestyle.
+
+
+## Date: 2 August  
+** Time:** 9:00 AM – 1:00 PM  
+
+### Morning Session (9:00 AM – 11:00 AM)  
+**Expert Lecture by Dr. Jaswinder Singh** (Incharge – IAPT) in the Auditorium.  
+- Sir introduced us to the college, its facilities, and the various opportunities available for CSE & IT students.  
+- He explained how students can make the most of their time during their academic journey.  
+- Shared valuable tips for balancing academics with extracurricular activities.  
+
+---
+
+### Second Session (11:00 AM – 1:00 PM)  
+**Expert Lecture by Dr. Priya Darshni Madam** on *"Universal Human Values"* in the Auditorium.  
+- Mam discussed the importance of **human values** and **human needs** in daily life.  
+- She explained how living with strong values leads to a more meaningful and peaceful life.  
+- Stressed the importance of empathy, understanding others' situations, and maintaining harmony in relationships.  
+
+---
+
+###  Conclusion  
+Day-3 provided both practical guidance about the college environment and deep insights into personal values, helping students grow both academically and personally.
