@@ -88,3 +88,39 @@ This session helped us understand the connection between diet, health, and acade
 
 ###  Conclusion  
 Day-3 provided both practical guidance about the college environment and deep insights into personal values, helping students grow both academically and personally.
+
+
+## Date: 4 August  
+** Time:** 9:30 AM – 2:30 PM  
+
+### Session 1 (9:30 AM – 10:30 AM)  
+**Lecture by Prof. Rajvir Kaur** – *Chemistry Basics & Syllabus Overview* (TCC Seminar Hall)  
+- Mam started the session by introducing the basic concepts of chemistry.  
+- Discussed our syllabus in detail.  
+- Asked subject-related questions to check students' interest and prior knowledge.  
+
+---
+
+### Session 2 (10:30 AM – 11:30 AM)  
+**P2P Lecture by Seniors**  
+- Seniors guided us about college life and the main programming languages we will learn.  
+- Shared tips on interacting with people and building a good network.  
+- It was an engaging and friendly session.  
+
+---
+
+### Break (11:30 AM – 12:30 PM)  
+
+---
+
+### Session 3 (12:30 PM – 2:30 PM)  
+**Expert Lecture by Priya Darshni Madam** – *"Universal Human Values"* (Auditorium)  
+- Mam explained that living according to personal and positive values can make life fulfilling and balanced.  
+- Discussed how everyone has different ways of thinking.  
+- Guided us on controlling anger by trying to understand others’ situations—like they might be facing financial or personal issues—before reacting.  
+- Emphasized that empathy leads to peace and better relationships.  
+
+---
+
+### Conclusion  
+Day-4 was both academically informative and personally enriching, combining subject learning with essential life values.
